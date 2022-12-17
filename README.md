@@ -11,4 +11,19 @@ All by BinZ FAKE
 
 - Unzip Password: binzfakefonts
 
-- News Version: V1.0
+- New Version: V2.0 (Final Version)
+
+---------------------
+Some fonts are just as crazy:
+
+- AAA Fonts: V1.0 (Final)
+
+- AAA Font Download:
+
+- 100101 Fonts: V1.0 (Final)
+
+-- AAA Font Download:
+
+---------------------
+
+All Fonts By BinZ FAKE !!
